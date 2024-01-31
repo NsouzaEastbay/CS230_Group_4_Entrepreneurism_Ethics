@@ -1,1 +1,1 @@
-# CS230_Group_4_Entrepreneurism_Ethics
+# CS230 Group 4 Entrepreneurism Ethics
